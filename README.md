@@ -1,1 +1,1 @@
-F r e e l a n c e r
+A retired wintel engineer. Self taught programmer. 
